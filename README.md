@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Tanmay41
+- 👀 I’m interested in IT
+- 🌱 I’m currently learning Full Stack Web Development
+- 📫 How to reach me https://www.instagram.com/tanmayror19/
