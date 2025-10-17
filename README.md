@@ -1,5 +1,5 @@
 # 💫 About Me:
-✍🏻 I'm a student in 9th grade<br>🔭 I'm currently looking for internships
+✍🏻 I'm a student in 10th grade<br>🔭 I'm currently looking for internships
 
 
 ## 🌐 Socials:
